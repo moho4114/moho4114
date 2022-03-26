@@ -1,0 +1,1 @@
+kibasztak az iskolabol
